@@ -1,0 +1,1 @@
+![screencapture-deepbmungra-github-io-Structuring-a-One-Page-Layout-Using-HTML-and-CSS-with-div-IDs-2025-01-08-16_45_57](https://github.com/user-attachments/assets/a148c860-1e68-4820-bc08-51b9f28e10d2)
